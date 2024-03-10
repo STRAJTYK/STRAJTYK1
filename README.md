@@ -1,0 +1,2 @@
+# STRAJTYK1
+1
